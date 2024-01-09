@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Ingeniero en computación egresado de la facultad de Ingeniería de la UNAM
+
+- 📫 Contacto: uriel.candia@outlook.es
+- 🌐 LinkedIn: www.linkedin.com/in/uriel-candia-marcial-7b925126a
